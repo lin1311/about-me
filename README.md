@@ -1,4 +1,4 @@
-![Whats-App-Image-2024-08-29-at-19-10-39.jpg](https://postimg.cc/4n9HmyNd)
+![my photo](https://ltdfoto.ru/images/2024/08/29/my-photo.jpg)
 
 
 # О себе
